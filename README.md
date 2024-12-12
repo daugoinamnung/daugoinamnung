@@ -1,16 +1,23 @@
-## Hi there 👋
+## CÔNG TY TNHH Nam Nung Việt Nam
 
-<!--
-**daugoinamnung/daugoinamnung** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Nam Nung là nhà sản xuất uy tín cung cấp các sản phẩm chăm sóc cá nhân từ thảo dược tự nhiên với các sản phẩm: dầu gội, dầu xả, tinh dầu, sữa tắm... Cam kết bảo vệ sức khỏe người tiêu dùng, Nam Nung sử dụng nguyên liệu an toàn, thân thiện với môi trường.
 
-Here are some ideas to get you started:
+#namnung #daugoinamnung #namnungvietnam
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Địa chỉ: Số 70, Đường số 10, Khu dân cư Cityland Park Hills, Phường 10, Quận Gò Vấp, Thành Phố Hồ Chí Minh
+
+- SĐT: 034902398
+
+- Website: https://www.namnungvietnam.com/
+
+https://www.namnungvietnam.com/gioi-thieu
+
+https://www.facebook.com/Daugoitrirungtocnamnung/
+
+https://www.pinterest.com/daugoinamnung/
+
+https://vimeo.com/daugoinamnung
+
+https://www.twitch.tv/daugoinamnung
+
+https://www.producthunt.com/@daugoinamnung
